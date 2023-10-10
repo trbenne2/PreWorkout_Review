@@ -42,3 +42,11 @@ Originally had this in College but do not remember it enough to give a review so
 Rating: 6/10
 
 Has a very solid flavor. The scooper is pretty long which is needed since the container is tall. Water amount went to 8oz-10oz per 1 scoop. normal wait 20-30 min before workout. The tingles are not as intense as others before a workout. Tingles do call for the face rub. Do not really feel it when lifting so it's probably working just not as strong as i need it to be.
+
+### Ryse Smarties
+
+Rating: 6/10
+
+![ryse](71GqWHMfZmL._AC_UF894,1000_QL80_.jpg)
+
+The flavor is nothing like I would imagine. Probably smarties has a hard flavor to match but idk what this taste like to compare to. It has a lot of caffine to the bowel is intense before a workout. Often times had the urge towards the end of a workout again. This is due to the 300mg of caffine. They do claim 100mg is slow release but idk how much truth there is in that. There is some intense focus with this and a good tingle with 3500mg beta alanine. If I go back to ryze I would not do the smarties flavor again but a grape or blue berry might be good.
